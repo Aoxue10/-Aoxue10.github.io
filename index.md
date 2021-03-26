@@ -1,3 +1,10 @@
+# 資訊三甲 40717012 陳桓瑜
+
+[網頁](https://aoxue10.github.io/)   
+
+![](https://raw.githubusercontent.com/Aoxue10/username.github.io/main/yande.re%20747295%20daidou_(demitasse)%20kagamine_rin%20pantyhose%20valentine%20vocaloid.jpg)   
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Aoxue10/-Aoxue10.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
